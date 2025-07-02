@@ -44,7 +44,7 @@ Discover hidden gems across various niches, from art prints to collectibles.
 
 Receive personalized guidance to launch and scale your reselling business.
 
-[Join Strike Access Now](https://kelexbawz.com/strike-access-full)
+[Join Strike Access Now](https://whop.com/strike-access-full?a=kelechienwere1234)
 
 ---
 
@@ -60,7 +60,7 @@ Strike Access offers multiple membership tiers:
 
 Considering the potential to turn \$50 into \$1,000 in less than a month, the value proposition is compelling.
 
-[Join Strike Access Now to Start Earning Today](https://kelexbawz.com/strike-access-full)
+[Join Strike Access Now to Start Earning Today](https://whop.com/strike-access-full?a=kelechienwere1234)
 
 ---
 
@@ -86,7 +86,7 @@ Strike Access is tailored for:
 
 * **Personalized Support:** 1-on-1 assistance ensures you're never alone in your journey.
 
-[Join Strike Access Now to Unlock Your Reselling Potential](https://kelexbawz.com/strike-access-full)
+[Join Strike Access Now to Unlock Your Reselling Potential](https://whop.com/strike-access-full?a=kelechienwere1234)
 
 ---
 
@@ -108,4 +108,4 @@ With a 4.95-star rating from over 420 reviews, users praise Strike Access for it
 
 Strike Access stands out as a comprehensive platform for anyone serious about reselling. With its array of features, supportive community, and proven track record, it's a worthy investment for those looking to elevate their reselling game.
 
-[Ready to Elevate Your Reselling Game? Join Strike Access Now](https://kelexbawz.com/strike-access-full)
+[Ready to Elevate Your Reselling Game? Join Strike Access Now](https://whop.com/strike-access-full?a=kelechienwere1234)
